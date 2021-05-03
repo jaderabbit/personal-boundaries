@@ -4,7 +4,7 @@
 
 - I will not be close with someone who physically lashes out against me with anger. Not even once
 - I have a right to chose who I spend my time with
-- I have a right to choose to be where I please when I please. No one has a right to trap me against my will or make me feel guilty about being somewhere
+- I have a right to choose to be where I please when I please. No one has a right to trap me against my will or make me feel guilty about being somewhere. No one has the right to dictate where I can and cannot go
 
 ## Emotional Boundaries
 
