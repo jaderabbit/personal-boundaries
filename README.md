@@ -39,3 +39,17 @@
   - Growing a strong friendship base
   - Paying off my house
   - Supporting my current friends
+
+
+## Details
+
+### I will not be part of a relationship where I am not treated with love, kindness and respect.
+
+| What does this look like | What does this not look like |
+| ------- | ------ |
+| Reciprication of small gestures of appreciation | Few or no small gestures of appreciation |
+| Celebration and support of my successes | Minimizing or ignoring my successes | 
+| Empathy, sensitivity and softness when discussing hard topics | Defensiveness, gaslighting and blaming when discussing hard topics | 
+| Taking my requests seriously when discussing them | Turning a request into a guilt trip or a joke | 
+| Encouraging me to see friends and be independant | Guilt tripping me when I see friends or I am independant | 
+| Empathy and patience when I am sad | Irritation or anger when I am sad | 
