@@ -24,7 +24,7 @@
 - I will not be part of a relationship where my emotional needs are invalidated
 - I will not be involved with anyone who mistreats people or animals. If I see them doing so I will raise it immediately.
 - When I meet someone new, I will continue to create space to meet new people and persue new friendships, relationships and interests
-- I will reserve some spaces for myself and for my relationships with those besides my partner. For examples, I will have Women in ML events where only the group attends. Another example: I will create space to spend time with my family without my partner sometimes. 
+- I will reserve some spaces for myself and for my relationships with those besides my partners. For examples, I will have Women in ML events where only the group attends. Another example: I will create space to spend time with my family without my partners. 
 - I will not make assumptions about what people are thinking and feeling and will instead ask
 - I will not take on someone's else problems as if they are my own. I will instead provide advice or ideas when asked for. And I will ask if ideas are welcome before offering. I will not take on the anxiety of their problems as if it were my own. Instead I will focus on listening. I will provide support (helping remove obstacles) or providing small gestures of kindness so they know that I am there and to break up their stress. I will NOT sort out their problems FOR them.  
 - It is unacceptable for someone to be make me feel guilty about my past sexual relationships
