@@ -41,6 +41,7 @@
   - Growing a strong friendship base
   - Paying off my house
   - Supporting my current friends
+- I often require quiet, space, and alone time. I will not tolerate someone who does not respect that, even if it's for love
 
 
 ## Details
